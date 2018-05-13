@@ -1,0 +1,1 @@
+to jest projekt z In¿ynieri oprogramowania. 
